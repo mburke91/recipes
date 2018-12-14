@@ -5,21 +5,21 @@ From https://en.wikibooks.org/wiki/Cookbook:Traditional_Lasagne
 * 2 Tbsp olive oil
 * 1 large onion,(Optionally: 2 Carrots and 2 Celery) finely chopped
 * 3 lbs (1.5 kilo) minced (ground) beef
-4 cloves of garlic, finely chopped or crushed
-1 can (400 g) quality chopped plum tomatoes
-10-15 basil leaves, chopped or torn (or 1 tsp dried basil)
-1/2 tsp dried oregano
-5 crushed black peppercorns (or to taste)
-1 tsp sea salt (or to taste)
-1/2 tsp sugar
-(Optionally) 150-200 ml red wine
-One pack of lasagne sheet
-1.5 pints (850 ml) béchamel sauce
-Finely grated parmesan
-Equipment
-One small pan for the bechamel sauce (preferably non-stick)
-One large, deep pan for the ragu
-A sha
+* 4 cloves of garlic, finely chopped or crushed
+* 1 can (400 g) quality chopped plum tomatoes
+* 10-15 basil leaves, chopped or torn (or 1 tsp dried basil)
+* 1/2 tsp dried oregano
+* 5 crushed black peppercorns (or to taste)
+* 1 tsp sea salt (or to taste)
+* 1/2 tsp sugar
+* (Optionally) 150-200 ml red wine
+* One pack of lasagne sheet
+* 1.5 pints (850 ml) béchamel sauce
+* Finely grated parmesan
+* Equipment
+* One small pan for the bechamel sauce (preferably non-stick)
+* One large, deep pan for the ragu
+* A sha
 
 **Procedure**
 
